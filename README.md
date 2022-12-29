@@ -6,5 +6,7 @@ For more deep conversation, you can also schedule a time with me.
 
 My consultant rate would be $100/hr.  
 
-Thanks,
+PayMe over here: https://paypal.me/dotku
+
+Thanks,  
 Jay Lin
